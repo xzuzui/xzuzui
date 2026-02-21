@@ -15,7 +15,7 @@ w2i when not busy ⸜(｡˃ ᵕ ˂ )⸝♡, but cuds still welcomed when dni!
 
 
 
-"ou dont know how long i could stare at your picture, and wish that it was me. I guess it’s different cause you love him, but i’ve got an interactive, sick and twisted imagination, but that’s gotta count for something?"
+"you dont know how long i could stare at your picture, and wish that it was me. I guess it’s different cause you love him, but i’ve got an interactive, sick and twisted imagination, but that’s gotta count for something?"
 -TV GIRL
 
 
