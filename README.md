@@ -10,6 +10,8 @@ c + h heavily!!!
 
 w2i when not busy ⸜(｡˃ ᵕ ˂ )⸝♡, but cuds still welcomed when dni!
 
+I LOVE GIFTING SKINS PLEASE ASK AND ILL DO!!!!
+
 ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　
 
