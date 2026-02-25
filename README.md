@@ -10,7 +10,7 @@ c + h heavily!!!
 
 w2i when not busy ⸜(｡˃ ᵕ ˂ )⸝♡, but cuds still welcomed when dni!
 
-I LOVE GIFTING SKINS PLEASE ASK AND ILL DO!!!!
+I match energy so if im dry/ rude thats on you...!!!!
 
 ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　
@@ -26,10 +26,13 @@ If your the type to come find me when im online, i will find u too ifykwim. I on
 
 ꉂ(˵˃ ᗜ ˂˵)
 
+I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
+
 # ⊹ ࣪ ˖ .ᐟ.ᐟ
 ⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec<3 
 
 # ୭ ˚. ᵎᵎˎˊ˗ check out my oomfs ><
+
 
 
 ![Image](https://github.com/user-attachments/assets/6542b84a-8220-44b3-9bc5-2414ef272cb7)
