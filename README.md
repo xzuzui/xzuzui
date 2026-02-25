@@ -17,7 +17,7 @@ I match always energy so if im dry/ rude thats on you...(; -o-)
 
 
 
-"you dont know how long i could stare at your picture, and wish that it was me. I guess it’s different cause you love him, but i’ve got an interactive, sick and twisted imagination, but that’s gotta count for something?"
+"Hand it back, whole again, but I won't. You'll live a long time yet, Catherine. An eternity without me. You will look into the faces of passers-by, hoping for something that will, for an instant, bring me back to you. You will find moonlight night strangely empty, because when you call my name throught then there will be no answer..."
 
 If your the type to come find me when im online, i will find u too ifykwim. I only make first moves when we are close ^^
 
