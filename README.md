@@ -30,7 +30,7 @@ I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
 # ⊹ ࣪ ˖ .ᐟ.ᐟ
 ⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec please! <3 
 
-⋮ ⌗ ┆ Normally always calm, I dont get mad at people unless they really fuck up. I freefly block those who are disruptive :) 
+⋮ ⌗ ┆ Normally always calm, I dont get mad at people unless they really fuck up and you'll know. I freely block no matter who you are. :) 
 
 ⋮ ⌗ ┆ Please keep it decent, when im uncomfortable I rarely speak up about it but there will be obvious signs just keep it wholesome or jokingly ok!
 
