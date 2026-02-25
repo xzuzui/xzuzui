@@ -29,9 +29,12 @@ If your the type to come find me when im online, i will find u too ifykwim. I on
 I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
 
 # ⊹ ࣪ ˖ .ᐟ.ᐟ
-⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec<3 
+⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec please! <3 
+⋮ ⌗ ┆Noramlly always calm, I dont get mad at people unless they really fuck up. I freefly block those who are disruptive :) 
 
-# ୭ ˚. ᵎᵎˎˊ˗ check out my oomfs ><
+# Thank you for reading my about me! Have a lovely day ml!
+
+# ୭ ˚. ᵎᵎˎˊ˗ check out my oomfs btw >>>>
 
 
 
