@@ -32,7 +32,7 @@ I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
 
 ⋮ ⌗ ┆ Normally always calm, I dont get mad at people unless they really fuck up. I freefly block those who are disruptive :) 
 
-⋮ ⌗ ┆ Please keep it decent, when im uncomfortable I rarely speak up about it so pick up the clues...
+⋮ ⌗ ┆ Please keep it decent, when im uncomfortable I rarely speak up about it but there will be obvious signs just keep it wholesome or jokingly ok!
 
 # Thank you for reading my about me! Have a lovely day ml!
 
