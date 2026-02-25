@@ -10,7 +10,7 @@ c + h heavily!!!
 
 w2i when not busy ⸜(｡˃ ᵕ ˂ )⸝♡, but cuds still welcomed when dni!
 
-I match always energy so if im dry/ rude thats on you...(;'-')
+I match always energy so if im dry/ rude thats on you...(; -o-)
 
 ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　
