@@ -26,9 +26,9 @@ Come find me! I shy away from first moves^^
 
 ꉂ(˵˃ ᗜ ˂˵)
 
-I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
 
-# ⊹ ࣪ ˖ .ᐟ.ᐟ
+
+# ⊹ ࣪ ˖ IMPORTANT.ᐟ.ᐟ
 ⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec please! <3 
 
 ⋮ ⌗ ┆I wont normally tell people how I feel genuinely, please always treat me with care.*
