@@ -10,16 +10,17 @@ c + h heavily!!!
 
 w2i when not busy ⸜(｡˃ ᵕ ˂ )⸝♡, but cuds still welcomed when dni!
 
-I match always energy so if im dry/ rude thats on you...(; -o-)
+I match always energy so if im dry/ rude thats on you(; -o-)
 
 ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　
-
-
+                                                    ...
+...
 
 "Hand it back, whole again, but I won't. You'll live a long time yet, Catherine. An eternity without me. You will look into the faces of passers-by, hoping for something that will, for an instant, bring me back to you. You will find moonlight night strangely empty, because when you call my name throught then there will be no answer..."
+...
 
-If your the type to come find me when im online, i will find u too ifykwim. I only make first moves when we are close ^^
+Come find me! I shy away from first moves^^
 
 
 
@@ -30,9 +31,11 @@ I LOVE MATCHNG, COUPLE MATCHING LIMITED TO CLOSE FRIENDS OR I FW U ALOT...
 # ⊹ ࣪ ˖ .ᐟ.ᐟ
 ⋮ ⌗ ┆ byi please keep in mind im a lil sensitive with strangers so please iwc, i freely hide/block copiers and rude people, if you're a green name/ partner int however yall want i love you guys unless im in a bad mood, iwec please! <3 
 
-⋮ ⌗ ┆ Normally always calm, I dont get mad at people unless they really fuck up and you'll know. I freely block no matter who you are. :) 
+⋮ ⌗ ┆I wont normally tell people how I feel genuinely, please always treat me with care.*
 
-⋮ ⌗ ┆ Please keep it decent, when im uncomfortable I rarely speak up about it but there will be obvious signs just keep it wholesome or jokingly ok!
+⋮ ⌗ ┆ Normally always calm, I dont get mad at people unless they really fuck up and you'll know. I avoid int by offline mode! I freely block no matter who you are. :) 
+
+⋮ ⌗ ┆ Please keep it decent, when im uncomfortable there will be obvious signs just keep it wholesome or jokingly ok! 
 
 # Thank you for reading my about me! Have a lovely day ml!
 
