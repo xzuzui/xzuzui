@@ -5,6 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚ʚ♡ɞ˚&color=000000&style=plastic)
 
 c + h heavily!!!
+DO NOT COPY/SCREENSHOT ANY SKINS. ask for inspo!
 ->draw in sp!
 જ⁀➴♡ https://xzuabtme.straw.page
 
