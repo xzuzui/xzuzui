@@ -1,6 +1,6 @@
 <div align="center">
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. 
-　DO NOT COPY/SCREENSHOT ANY SKINS. ask for inspo!
+　DO NOT COPY/SCREENSHOT ANY SKINS
 
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚ʚ♡ɞ˚&color=000000&style=plastic)
 
