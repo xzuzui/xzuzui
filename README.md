@@ -22,7 +22,7 @@ I match always energy so if im dry/ rude thats on you(; -o-)
 "Hand it back, whole again, but I won't. You'll live a long time yet, Catherine. An eternity without me. You will look into the faces of passers-by, hoping for something that will, for an instant, bring me back to you. You will find moonlight night strangely empty, because when you call my name throught then there will be no answer..."
 ...
 
-Come find me! I shy away from first moves^^
+read my love letters if we close!`~ https://lovele11ers.carrd.co
 
 
 
